@@ -4,5 +4,5 @@ I am Pallabi Roy Singh, a T-shaped professional with 12+ years of experience in 
 
 Look forward to collaborating with like-minded professionals.
 
-You can reach me at pallabiroysingh@gmail.com.
+You can reach me at writerpallabi@gmail.com.
 
